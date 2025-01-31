@@ -1,0 +1,1 @@
+Victor Rodriguez: I am an old man that is working on his seconf BS degree in CS. I got my first degree in Exercise Science from NAU. I served 4 years in the USMC and got to go to "deploy" to Japan twice for a total time of 1 year. I am from Grand Prairie, TX and love to travel.
